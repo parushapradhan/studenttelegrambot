@@ -9,7 +9,7 @@
 👤 **Parusha Pradhan**
 
 * Github: [@parushapradhan](https://github.com/parushapradhan)
-* LinkedIn: [@Parusha Pradhan](https://linkedin.com/in/Parusha Pradhan)
+* LinkedIn: [@Parusha Pradhan](https://www.linkedin.com/in/parusha-pradhan-133772168/)
 
 ## Show your support
 
